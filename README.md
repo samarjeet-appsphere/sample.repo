@@ -1,1 +1,1 @@
-Author - Samarjeet Singh Khanuja
+Author - Samarjeet Singh 
